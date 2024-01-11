@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @prasad0622
-- 👀 I’m interested in "data analytics"
+- 👀 I want to become a "data analyst"
 - 🌱 I’m currently learning "bca"
   
